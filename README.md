@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Spiritzzx
 - 👀 I’m interested in drawing, origami,fursuiting and making bracelets!
 - 🌱 I’m currently learning English
-- 💞️ I’m looking to collaborate but I dont know with who
 - 😄 Pronouns: She/They
 - ⚡ Fun fact: I'm a Helluva Boss, Murder Drones and Hazbin Hotel fan :>
 
